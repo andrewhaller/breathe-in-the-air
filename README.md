@@ -8,7 +8,7 @@
 
 - I live in Naperville, Illinois (Chicago suburb)
 
-- I gardening, cooking, and making things with what I grow. I mostly grow heirloom tomatoes, cucumbers, carrots, onions, lot's of herbs, and a variety of peppers and hot peppers.
+- I enjoy gardening, cooking, and making things with what I grow. I mostly grow heirloom tomatoes, cucumbers, carrots, onions, lot's of herbs, and a variety of peppers and hot peppers.
 
 - One of my favorite ways to decompress is going for a 5 mile run in the warm sun, listening to music.
 
