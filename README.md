@@ -10,11 +10,11 @@
 
 - I enjoy gardening, cooking, and making things with what I grow. I mostly grow heirloom tomatoes, cucumbers, carrots, onions, lot's of herbs, and a variety of peppers and hot peppers.
 
-- One of my favorite ways to decompress is going for a 5 mile run in the warm sun, listening to music.
+- One of my favorite ways to decompress is going for a 5 mile run, in the warm sun, listening to music.
 
-- I prefer driving a manual car and currently drive a Mustang.
+- I prefer driving a manual car, and currently drive a Mustang.
 
-- I enjoy spending time with my wife, and our family.
+- I enjoy spending time with my wife and our family.
 
 - I'm pretty introverted, so I also enjoy staring at a wall and imagining what life would be like on a planet with no other people.
 
